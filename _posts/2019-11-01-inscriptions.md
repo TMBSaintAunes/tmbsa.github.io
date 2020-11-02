@@ -5,7 +5,7 @@ title: Inscriptions 2020
 category: Club
 ---
 
-Les inscriptions au club pour la saison 2020 sont ouvertes, merci de remplir le formulaire d'inscription ci-dessous :
+Les inscriptions au club pour la saison 2021 sont ouvertes, merci de remplir le formulaire d'inscription ci-dessous :
 
 
 
